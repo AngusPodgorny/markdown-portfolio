@@ -1,1 +1,1 @@
-# Angus Podgorny Strikes A Third Time!  
+# Angus Podgorny Strikes A Third Time!
