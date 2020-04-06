@@ -1,1 +1,5 @@
-Replace this with a list of your favorite things.
+A few Favorite thiings: :+1: 
+
+* Relaxing 
+* Cooking
+* Computer Stuff
